@@ -1,4 +1,4 @@
-♡  . ⠀ ⠀ [my dearest](https://github.com/bunnytrapped) ⠀⠀ . .☘︎ ݁˖ ༝  ⠀[ata](https://parasiticrose.atabook.org/)⠀ ⠀◞⠀ [pronoun](https://en.pronouns.page/@P4rasiticR0se)⠀  <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/b8ef6331-9613-4e8f-9e45-2a6279ffcebd" />◞⠀⠀ [sib](https://github.com/yaoifuI) <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/b9733118-8cc8-463b-8864-932b6338cd6b" />
+♡  . ⠀ ⠀ [my dearest](https://github.com/bunnytrapped) ⠀⠀ . .☘︎ ݁˖ ༝  ⠀[ata](https://parasiticrose.atabook.org/)⠀ ⠀◞⠀ [pronoun](https://en.pronouns.page/@P4rasiticR0se)⠀  <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/b8ef6331-9613-4e8f-9e45-2a6279ffcebd" />◞⠀⠀ [sib]([https://github.com/yaoifuI](https://github.com/yurifuI)) <img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/b9733118-8cc8-463b-8864-932b6338cd6b" />
  [lings](https://github.com/KISSINGSTRANGERS) ⠀  ⠀༯⠀⠀  ⠀[vax](https://github.com/yaoirot)
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀
 ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀
